@@ -14,3 +14,4 @@
 2)	Кондауров Владимир Константинович - дизайнер/программист
 3)	Долгополов Даниил Андреевич – программист
 
+Ссылка на проект - https://drive.google.com/file/d/1hqKFD4rHFqDhJKnioZUJTafwpVHsEezc/view?usp=share_link
